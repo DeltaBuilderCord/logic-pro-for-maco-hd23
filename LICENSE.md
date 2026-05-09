@@ -1,4 +1,4 @@
-
+Logic Pro for macOS rare LUT: subtitle-generator & green-screen-removal is the best Logic Pro for macOS lut, featuring subtitle-generator and green-screen-removal. Safe,
 
 
 
